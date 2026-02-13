@@ -1,6 +1,9 @@
 ###         Hii !! ^ ◡ ^
 
-<!--https://www.instagram.com/glx.cierx?igsh=YWdzMGFlZWN0dGdz
+https://www.instagram.com/glx.cierx?igsh=YWdzMGFlZWN0dGdz
+
+➥ _*𝓘nstagram 𝓐ccount*_
+<!--
 **glxcierx/glxcierx** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
