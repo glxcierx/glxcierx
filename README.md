@@ -2,8 +2,7 @@
 
 lazy to change bio ok 
 
-@decayingcorpses , @promiseduo , @mochifabrication-blip , @derapchv 
-╰ awesome people
+@decayingcorpses , @promiseduo , @mochifabrication-blip , @derapchv is an awesome people
 
 <!--
 **glxcierx/glxcierx** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
