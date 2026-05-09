@@ -1,8 +1,10 @@
-###         Hii !! ^ ◡ ^
+###         ^ ◡ ^
 
-https://www.instagram.com/glx.cierx?igsh=YWdzMGFlZWN0dGdz
+lazy to change bio ok 
 
-➥ _*𝓘nstagram 𝓐ccount*_
+@decayingcorpses , @promiseduo , @mochifabrication-blip , @derapchv 
+╰ awesome people
+
 <!--
 **glxcierx/glxcierx** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
