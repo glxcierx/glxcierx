@@ -2,7 +2,7 @@
 
 lazy to change bio ok 
 
-@decayingcorpses , @promiseduo , @mochifabrication-blip , @derapchv are awesome
+@decayingcorpses , @promiseduo , @mochifabrication-blip , @killerbunnies are awesome
 
 no im not a spam follower, I just like following people who I find cool.. 
 
