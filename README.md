@@ -4,7 +4,7 @@ lazy to change bio ok
 
 @decayingcorpses , @promiseduo , @mochifabrication-blip , @killerbunnies are awesome
 
-no im not a spam follower, I just like following people who I find cool.. 
+no im not a spam follower, I just like following people who I find cool.. (including spam followers / alts)
 
 <!--
 **glxcierx/glxcierx** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
