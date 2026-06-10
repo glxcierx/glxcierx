@@ -9,10 +9,14 @@
 
 <p align="center"> .𖥔 ݁ ˖𓂃.☘︎ ݁˖
 
-<p align="center"> [decayingcorpses](https://github.com/decayingcorpses) 
+<p align="center">
+ [decayingcorpses](https://github.com/decayingcorpses) 
 
-<p align="center"> [killerbunnies](https://github.com/killerbunnies) 
+<p align="center">
+ [killerbunnies](https://github.com/killerbunnies) 
 
-<p align="center"> [promiseduo](https://github.com/promiseduo)
+<p align="center">
+ [promiseduo](https://github.com/promiseduo)
 
-<p align="center"> [
+<p align="center"> 
+[
