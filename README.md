@@ -25,3 +25,5 @@
 
 <p align="center">
   <a href="https://github.com/thegloriouspie">thegloriouspie</a>
+
+<p align="center"> .𖥔 ݁ ˖𓂃.☘︎ ݁˖
