@@ -22,4 +22,4 @@
   <a href="https://github.com/mochifabrication-blip">mochifabrication-blip</a>
 
 <p align="center">
-  <a href=""></a>
+  <a href="https://github.com/thegloriouspie">thegloriouspie</a>
