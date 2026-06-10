@@ -9,6 +9,8 @@
 
 <p align="center"> .𖥔 ݁ ˖𓂃.☘︎ ݁˖
 
+<p align="center"> special mentions
+
 <p align="center">
   <a href="https://github.com/decayingcorpses">decayingcorpses</a> 
 
