@@ -27,3 +27,5 @@
   <a href="https://github.com/thegloriouspie">thegloriouspie</a>
 
 <p align="center"> .𖥔 ݁ ˖𓂃.☘︎ ݁˖
+
+<p align="center"> my 2nd main <a href="https://github.com/spiralwindly">spiralwindly</a>
