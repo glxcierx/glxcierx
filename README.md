@@ -31,3 +31,7 @@
 <p align="center"> my 2nd main <a href="https://github.com/spiralwindly">spiralwindly</a>
 
 <p align="center"> .𖥔 ݁ ˖𓂃.☘︎ ݁˖
+
+<p align="center"> I don't check profiles so if im following a problematic person, please tell me in my <a href="https://windly.atabook.org/">atabook</a>
+
+<p align="center"> .𖥔 ݁ ˖𓂃.☘︎ ݁˖
