@@ -12,7 +12,10 @@
 <p align="center"> special mentions
 
 <p align="center">
-  <a href="https://github.com/decayingcorpses">decayingcorpses</a> 
+  <a href="https://github.com/decayingcorpses">decayingcorpses</a>
+
+<p align="center">
+  <a href="https://github.com/desiredlife">desiredlife</a> 
 
 <p align="center">
   <a href="https://github.com/killerbunnies">killerbunnies</a>
