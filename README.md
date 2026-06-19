@@ -29,6 +29,9 @@
 <p align="center">
   <a href="https://github.com/thegloriouspie">thegloriouspie</a>
 
+<p align="center">
+  <a href="https://github.com/6-bloodhound-6">6-bloodhound-6</a>
+
 <p align="center"> .𖥔 ݁ ˖𓂃.☘︎ ݁˖
 
 <p align="center"> my 2nd main <a href="https://github.com/spiralwindly">spiralwindly</a>
