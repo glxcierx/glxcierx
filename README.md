@@ -38,6 +38,8 @@
 
 <p align="center"> .𖥔 ݁ ˖𓂃.☘︎ ݁˖
 
-<p align="center"> I follow people I find cool and I don't check profiles so if im following a problematic person, please tell me in my <a href="https://windly.atabook.org/">atabook</a> this is not a spam follower account btw!
+<p align="center"> I follow people I find cool and I don't check profiles so if im following a problematic person, please" tell me in my <a href="https://windly.atabook.org/">atabook</a> 
 
 <p align="center"> .𖥔 ݁ ˖𓂃.☘︎ ݁˖
+
+<p align="center"> this is not a spam follower account btw!
