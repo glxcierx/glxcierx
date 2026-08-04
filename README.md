@@ -34,7 +34,7 @@
 
 <p align="center"> .𖥔 ݁ ˖𓂃.☘︎ ݁˖
 
-<p align="center"> my 2nd main <a href="https://github.com/spiralwindly">spiralwindly</a>
+<p align="center"> my 2nd main <a href="https://github.com/kaboodIe">kaboodIe</a>
 
 <p align="center"> .𖥔 ݁ ˖𓂃.☘︎ ݁˖
 
